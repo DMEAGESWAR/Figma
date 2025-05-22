@@ -77,7 +77,8 @@ code for ss 4:
 ![image](https://github.com/user-attachments/assets/ba2f2250-71c7-4f13-928b-e10b8fad276d)
 ![image](https://github.com/user-attachments/assets/273f02ef-3664-4f8f-8ff6-29a28a28a2d1)
 ![image](https://github.com/user-attachments/assets/6653d6a3-ac93-4f12-b9cd-985978c072dd)
-![Uploading image.png…]()
+![image](https://github.com/user-attachments/assets/6e821712-36f3-4486-a315-2cbdc36b8c7c)
+
 
 
 
